@@ -12,4 +12,8 @@
 5. Armado, extender la masa sobre el plato donde se vaya a cocinar.
 - Dividir la masa en dos.  Estirar cada masa hasta obtener un círculo de 10 pulgadas, transferir a una bandeja con papel antiadherente, colocar la salsa, queso (150g por pizza), jamón y condimentos al gusto.  Reposar 10 minutos y colocar la pizza en el horno hornear por 15 a 20 minutos a 425ºF, hasta que la orilla esté dorada.
 
-6. Comer
+6. Transladar la pizza ya horneada fuera del horno y dejar enfriar de 2 a 4 minutos. 
+
+7. Con un cortapizza dividir los trozos en tamaños iguales.
+
+8. Servir y disfrutar de la pizza. 
